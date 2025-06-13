@@ -5,4 +5,8 @@ f ou m find a way
 - know my waywhen no more beginner
 - fille ou un garcon , tu peu connaitre way de faire : voyageur, exercise,
 - decouvrir explore outdoor ou indoor
-- f/m et/ou garcon qui connait way de faire, ou decouvrir ta facon de fiare
+- f/m et/ou file/garcon qui connait way de faire, ou decouvrir ta facon de fiare
+
+
+- facebook / instagram photos
+- twitter talk, drapeaux hashtag
